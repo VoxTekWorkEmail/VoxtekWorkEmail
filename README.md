@@ -3,7 +3,7 @@
 > <img src="https://i.postimg.cc/GpFGD9NR/Untitled931-20260108033131.png" width="520" height="430" /> "𝗛𝗲𝗮𝘃𝗲𝗻 𝗺𝘂𝘀𝘁 𝗵𝗮𝘃𝗲 𝘀𝗲𝗻𝘁 𝘆𝗼𝘂 𝗱𝗼𝘄𝗻,
 > 𝗱𝗼𝘄𝗻 𝗳𝗼𝗿 𝘆𝗼𝘂 𝘁𝗼 𝗴𝗶𝘃𝗲 𝗺𝗲 𝗮 𝘁𝗵𝗿𝗶𝗹𝗹... 𝗲𝘃𝗲𝗿𝘆 𝘁𝗶𝗺𝗲 𝘆𝗼𝘂 𝘁𝗼𝘂𝗰𝗵 𝗺𝗲, 𝗲𝘃𝗲𝗿𝘆 𝘁𝗶𝗺𝗲 𝘆𝗼𝘂 𝗵𝗼𝗹𝗱 𝗺𝗲, 𝗺𝘆 𝗵𝗲𝗮𝗿𝘁 𝘀𝘁𝗮𝗿𝘁𝘀 𝘀𝗽𝗲𝗲𝗱𝗶𝗻' 𝗹𝗶𝗸𝗲 𝗮 𝘁𝗿𝗮𝗶𝗻 𝗼𝗻 𝗮 𝘁𝗿𝗮𝗰𝗸!"
 
-⠀⠀⠀<code style="color">Vox <ins>fictionkin</ins> and <ins>**yumeshipper**</ins></code>. I fucking love my sexy﹐ insecure television malewife. (>؂ •́)ᕗ <ins>He is me and I am him</ins>.⠀**kind of sharing**⠀﹠⠀multishipper.⠀⠀heavy staticapple/murdermedia shipper *pls do not cause conflict*.⠀**Do not interact if you do not like what you see**.
+⠀⠀⠀<code style="color">Vox <ins>fictionkin</ins> and <ins>**Vincent yumeshipper**</ins></code>. I fucking love my sexy﹐ insecure television malewife. (>؂ •́)ᕗ <ins>He is me and I am him</ins>.⠀**kind of sharing**⠀﹠⠀multishipper.⠀⠀heavy staticapple/murdermedia shipper *pls do not cause conflict*.⠀**Do not interact if you do not like what you see**.
 
 (<code style="color">im also fine with other ships, infact i will grow to love them!</code>)
 
